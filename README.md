@@ -5,7 +5,7 @@
   </p>
 <p align="center">
   <b>vash</b>, or our catch-all is rei (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌹 any prns 🌹 19
-  <br>introj + co-host
+  <br>introj
   <br><br>
 <b>whisper to interact!</b> i'm usually distracted...
 <br>it's better to whisper me if you want anything!
