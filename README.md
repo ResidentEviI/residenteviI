@@ -4,7 +4,7 @@
   <br><br><b>The ticket to the future... is always blank.</b>
   </p>
 <p align="center">
-  <b>vash</b>, or our catch-all is rei (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌹 any prns 🌹 19
+  <b>vash</b> (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌹 any prns 🌹 19
   <br>introj
   <br><br>
 <b>whisper to interact,</b> i'm usually distracted
@@ -13,8 +13,7 @@
 <br><br>
 <b> <a href="https://rentry.co/wolfwood_">list of interests</a></b>
 <br><br><b>just don't be weird, please</b>
-<br>+ i hide freely.
-<br><br><i><a href="https://vashwoods.straw.page">strawpage</a> for more info</i>
+<br>+ i hide freely
 <br>
 <br><i>The choices we make in life have unlimited possibilities.</i>
 </p>
