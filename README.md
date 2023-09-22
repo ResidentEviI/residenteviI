@@ -14,7 +14,7 @@
 <b> <a href="https://rentry.co/wolfwood_">list of interests</a></b>
 <br><br><b>just don't be weird, please!</b>
 <br>+ i hide freely.
-<br><br><i><a href="https://vashwoods.straw.page">host's strawpage</a> for more info</i>
+<br><br><i><a href="https://vashwoods.straw.page">strawpage</a> for more info</i>
 <br>
 <br><i>The choices we make in life have unlimited possibilities.</i>
 </p>
