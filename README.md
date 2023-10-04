@@ -4,15 +4,15 @@
   <br><br><b>The ticket to the future... is always blank.</b>
   </p>
 <p align="center">
-  <b>vash</b> (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌹 any prns 🌹 20
-  <br>introj
+  <b>vash</b> 🌹 any prns 🌹 20
+  <br><a href="https://pronouns.cc/@punishercross">introj</a>
   <br><br>
 <b>whisper to interact,</b> i'm usually distracted
 <br>it's better to whisper me if you want anything
 <br><b>i'm cuddle/hide friendly,</b> i love the company
 <br><br>
 <b> <a href="https://rentry.co/wolfwood_">list of interests</a></b>
-<br><br><b>just don't be weird, please</b>
+<br><br><b>just don't be weird, please!</b>
 <br>+ i hide freely
 <br>
 <br><i>The choices we make in life have unlimited possibilities.</i>
