@@ -7,9 +7,9 @@
   <b>vash</b> 🌹 any prns 🌹 20
   <br><a href="https://pronouns.cc/@punishercross">introj</a>
   <br><br>
-<b>whisper to interact,</b> i'm usually distracted
-<br>it's better to whisper me if you want anything
-<br><b>i'm cuddle/hide friendly,</b> i love the company
+<b>whisper to interact</b>
+<br>it's better to whisper me if you want anything!
+<br><b>i'm cuddle/hide friendly,</b> i love the company! especially friends
 <br><br>
 <b> <a href="https://rentry.co/wolfwood_">list of interests</a></b>
 <br><br><b>just don't be weird, please!</b>
