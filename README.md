@@ -1,22 +1,22 @@
 # about-me
 <p align="center">
-  <img src="https://64.media.tumblr.com/154bc358e31a6485226ed8a9346652ea/2c9e5c7571cf54eb-20/s2048x3072/90ad4ac9b117122152d8d859dc2c0eefed08cb26.pnj" width="500px">
-  <br><br><b>If I could just forget what happened that night - the pain, even for a second?</b>
+  <img src="https://64.media.tumblr.com/b7fc70c9bc32376460b47da8eeca84c7/1b64511c0b0196f2-93/s1280x1920/432d1062802ae803f06b60915d7f1a63a8ae1c5b.pnj" width="520px">
+  <br><br><b>Tango down—oops, old habits die hard…</b>
   </p>
 <p align="center">
-  <b>wolfwood</b> / leon (<a href="https://en.pronouns.page/@vashwood-">+</a>) ♰ he/him ♰ 20
+  <b>wolfwood</b>/nicholas (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any (male pref) 🌙 20
   <br>not strict with how i'm addressed though
   <br><br>
-<b>whisper to interact</b> if you want anything
-<br>it's better to whisper me cause i'm usually distracted
-<br><b>i'm cuddle/hide friendly,</b> love the company. the more the merrier
+<b>whisper to interact</b> cause i'm 90% offtab
+<br>it's better to whisper me anyway if you want anything
+<br><b>i'm cuddle/hide friendly,</b> i have a touch comfort
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
-<br>the mandela catalogue, scott pilgrim vs the world, jerma, creepypastas <a href="https://rentry.co/wolfwood_">+ more</a>
+<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://sntry.cc/picoschoolx">+ more</a>
 <br><br><b>minors limit interaction with me</b> <i>(friends excluded)</i>
 <br>+ i hide freely. i'll find out if i don't like you myself
-<br><br><i><a href="https://stratcom.straw.page">my strawpage</a> for more info</i>
+<br><br><i><a href="https://mindflayer.straw.page">my strawpage</a></i>
 <br>
-<br><i>This time, it can be different. It has to.</i>
+<br><i>Verdammt… Hey, you alright?</i>
 </p>
