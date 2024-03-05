@@ -13,8 +13,9 @@
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
-<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://sntry.cc/picoschoolx">+ more</a>
-<br><br><b>minors limit interaction with me</b> <i>(friends excluded)</i>
+<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://sntry.cc/deadfunerals">+ more</a>
+<br><br><b>i'm usually at the phighting area</b> <i>(i don't int first)</i>
+  <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i><a href="https://mindflayer.straw.page">my strawpage</a></i>
 <br>
