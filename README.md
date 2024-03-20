@@ -1,10 +1,10 @@
 # about-me
 <p align="center">
-  <img src="https://64.media.tumblr.com/b7fc70c9bc32376460b47da8eeca84c7/1b64511c0b0196f2-93/s1280x1920/432d1062802ae803f06b60915d7f1a63a8ae1c5b.pnj" width="520px">
-  <br><br><b>Tango down—oops, old habits die hard…</b>
+  <img src="https://64.media.tumblr.com/8e27e9e84d4bb429dc8c2f94b9e61f6c/3da7098bb1faad77-1c/s540x810/afa2a64857795a2869dc8fa377be500f0c2a0238.gifv" width="400px">
+  <br><br><b>Time never waits. It delivers all equally to the same end.</b>
   </p>
 <p align="center">
-  <b>wolfwood</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any (male pref) 🌙 20
+  <b>wolfwood</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any prns 🌙 20
   <br>not strict with how i'm addressed though
   <br><br>
 <b>whisper to interact</b> cause i'm 90% offtab
@@ -13,11 +13,11 @@
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
-<br>friday night funkin', scott pilgrim vs the world, jerma, creepypastas <a href="https://sntry.cc/deadfunerals">+ more</a>
+<br>friday night funkin', persona, roblox, creepypastas <a href="https://sntry.cc/deadfunerals">+ more</a>
 <br><br><b>i'm usually at the phighting area</b> <i>(i don't int first)</i>
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i><a href="https://mindflayer.straw.page">my strawpage</a></i>
 <br>
-<br><i>Verdammt… Hey, you alright?</i>
+<br><i>You will be given one year; go forth without falter, with your heart as your guide...</i>
 </p>
