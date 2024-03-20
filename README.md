@@ -9,7 +9,7 @@
   <br><br>
 <b>whisper to interact</b> cause i'm 90% offtab
 <br>it's better to whisper me anyway if you want anything
-<br><b>i'm cuddle/hide friendly,</b> i have a touch comfort
+<br><b>i'm cuddle/hide friendly,</b> i have a touch comfort. no need to ask
 <br><br>
 <b>my interets are</b>
 ultrakill, trigun, resident evil, identity v, pokemon,
