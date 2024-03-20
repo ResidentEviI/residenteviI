@@ -4,7 +4,7 @@
   <br><br><b>Tango down—oops, old habits die hard…</b>
   </p>
 <p align="center">
-  <b>wolfwood</b>/nicholas (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any (male pref) 🌙 20
+  <b>wolfwood</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any (male pref) 🌙 20
   <br>not strict with how i'm addressed though
   <br><br>
 <b>whisper to interact</b> cause i'm 90% offtab
