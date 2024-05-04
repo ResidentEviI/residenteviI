@@ -17,7 +17,7 @@ ultrakill, trigun, resident evil, identity v, pokemon,
 <br><br><b>i'm usually near docks/idv (18+) or roblox/fnf (safe)</b> <i>but i don't int first</i>
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
-<br><br><i><a href="https://mindflayer.straw.page">my strawpage</a></i>
+<br><br><i><a href="https://leviathanning.straw.page/">my strawpage</a></i>
 <br>
 <br><i>You will be given one year; go forth without falter, with your heart as your guide...</i>
 </p>
