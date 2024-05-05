@@ -1,13 +1,13 @@
 # about-me
 <p align="center">
-  <img src="https://64.media.tumblr.com/8e27e9e84d4bb429dc8c2f94b9e61f6c/3da7098bb1faad77-1c/s540x810/afa2a64857795a2869dc8fa377be500f0c2a0238.gifv" width="400px">
-  <br><br><b>Time never waits. It delivers all equally to the same end.</b>
+  <img src="https://i.imgur.com/79btZx4.png" width="200px">
+  <br><br><b>That's that, and this is this.</b>
   </p>
 <p align="center">
-  <b>wolfwood</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any prns 🌙 20
+  <b>compass</b>/nick (<a href="https://en.pronouns.page/@vashwood-">+</a>) 🌙 any prns 🌙 20
   <br>not strict with how i'm addressed though
   <br><br>
-<b>whisper to interact</b> cause i'm 90% offtab
+<b>whisper to interact</b> cause i'm usually offtab
 <br>it's better to whisper me anyway if you want anything
 <br><b>i'm cuddle/hide friendly,</b> i have a touch comfort. no need to ask
 <br><br>
@@ -19,5 +19,5 @@ ultrakill, trigun, resident evil, identity v, pokemon,
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i><a href="https://leviathanning.straw.page/">my strawpage</a></i>
 <br>
-<br><i>You will be given one year; go forth without falter, with your heart as your guide...</i>
+<br><i>Your pain and loss will be much greater than mine...</i>
 </p>
