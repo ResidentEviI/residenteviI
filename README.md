@@ -18,7 +18,7 @@ ultrakill, trigun, project moon, identity v, pokemon,
 <br><br><b>i'm usually with my boyfriend or friends,</b> <i>i don't int first</i>
   <br> inspo from my skins is fine, just don't impersonate me
 <br>+ i hide freely. i'll find out if i don't like you myself
-<br><br><i><a href="https://skatepark.straw.page/">my strawpage</a></i>
+<br><br><i><a href="https://eternality.straw.page/">my strawpage</a></i>
 <br>
 <br> <img src="https://64.media.tumblr.com/75c7abb77b2bc5439b7ad6cde4bcdb9e/00c4dd40e87344b7-57/s1280x1920/6f9276c67bf97d3bf77f198835edccf508c9b783.pnj" width="600px">
 </p>
