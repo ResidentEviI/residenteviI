@@ -1,6 +1,6 @@
 # about-me
 <p align="center">
-  <img src="https://64.media.tumblr.com/db126370ac19a6688bef7c2df6b694e0/00c4dd40e87344b7-0d/s1280x1920/6a866a9e99bf5a53a83e6cc4886d01b4134ffe9d.pnj" width="600px">
+  <img src="https://64.media.tumblr.com/ea96c27a07bbe077f139062c76cadf96/23b4a8b99fd33770-08/s1280x1920/e561b3abde7f03988dd01db2404e8901a327c7c9.pnj" width="600px">
   <br><br> <img src="https://64.media.tumblr.com/748917c76767bdc8f895a30d2414b66f/d1a06255eb234e7d-c8/s500x750/ae5baffb0efa6edad68aeee2b485b1926b282c61.pnj" width="300px">
   <br><br> <b>That paradise may be unreachable for me ...</b>
   </p>
@@ -20,5 +20,5 @@ ultrakill, trigun, project moon, identity v, pokemon,
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br><i><a href="https://rentry.co/eternaliity">rentry</a></i>
 <br>
-<br> <img src="https://64.media.tumblr.com/75c7abb77b2bc5439b7ad6cde4bcdb9e/00c4dd40e87344b7-57/s1280x1920/6f9276c67bf97d3bf77f198835edccf508c9b783.pnj" width="600px">
+<br> <img src="https://64.media.tumblr.com/ea96c27a07bbe077f139062c76cadf96/23b4a8b99fd33770-08/s1280x1920/e561b3abde7f03988dd01db2404e8901a327c7c9.pnj" width="600px">
 </p>
