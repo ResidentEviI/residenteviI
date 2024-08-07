@@ -20,7 +20,7 @@ ultrakill, trigun, project moon, identity v, pokemon,
 <br>+ i hide freely. i'll find out if i don't like you myself
 <br><br> i try to remember to update my status accordingly
 <br> online = on tab, away = offtab/afk, busy = sleeping/dniuc
-<br><br><i><a href="https://rentry.co/eternaliity">rentry</a></i>
+<br><br><i><a href="https://rentry.co/hdalblacksite">rentry</a></i>
 <br>
 <br> <img src="https://64.media.tumblr.com/ea96c27a07bbe077f139062c76cadf96/23b4a8b99fd33770-08/s1280x1920/e561b3abde7f03988dd01db2404e8901a327c7c9.pnj" width="600px">
 </p>
