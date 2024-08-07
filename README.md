@@ -5,7 +5,7 @@
   <br><br> <b>Running low on supplies?</b>
   </p>
 <p align="center">
-  <b>compass</b>/sebastian (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv" width="10px"> any prns <img src="https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv" width="10px"> 20
+  <b>compass</b>/painter (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv" width="10px"> any prns <img src="https://64.media.tumblr.com/dc6cc0ab77f882b52cd3a800aaa2fe28/db7ce6708c01e3ab-fc/s75x75_c1/72ee01e8a2be1ef319cc5eed86d84dd6a9ccf2bf.gifv" width="10px"> 20
   <br>not strict with how i'm addressed, call me whatver you prefer
   <br><br>
 <b>whisp2int</b> cause i'm usually offtab and on the personal tab
