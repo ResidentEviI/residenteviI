@@ -1,6 +1,6 @@
 # about-me
 <p align="center">
-  <img src="https://64.media.tumblr.com/4a74cafc2b442fc346a44e07284fee44/df98111ed2183d70-ce/s2048x3072/68bbaee43beb0f5514429a319ed82efce1c80c5a.pnj" width="600px">
+  <img src="https://static.wikia.nocookie.net/library-of-ruina/images/4/43/PhilipCombatIdle.png/revision/latest?cb=20220409201814" width="200px">
   </p>
 <p align="center">
   <b>compass</b> or whatever you know me as (<a href="https://en.pronouns.page/@eternality">+</a>) <img src="https://64.media.tumblr.com/8d2ed79f43b2b8652506553bb51346b0/b572a179094d603f-cc/s75x75_c1/f77303d2909c4ee69050e540347222134df9e68e.gifv" width="10px"> any prns <img src="https://64.media.tumblr.com/8d2ed79f43b2b8652506553bb51346b0/b572a179094d603f-cc/s75x75_c1/f77303d2909c4ee69050e540347222134df9e68e.gifv" width="10px"> 21
